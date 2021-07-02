@@ -1,1 +1,2 @@
-Once upon a time there was a grasshopper & there were a group of ants. The ants were working very hard in the summer so that they can relax in the winter.The grasshopper asked them why are you doing all the hardwork in the summer & not saving some work for the winter.
+Once upon a time there was a grasshopper & there were a group of ants. The ants were working very hard in the summer so that they can relax in the winter.The grasshopper asked them why are you doing all the hardwork in the summer & not saving some work for the winter. 
+And the ants told the grasshopper that if we do all the hardwork in the summer we can relax & enjoy the winters. 
